@@ -1,1 +1,1 @@
-# NBA-2024-pROJECT
+# NBA-2024-Project
